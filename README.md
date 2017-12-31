@@ -13,7 +13,11 @@ Go to a gym between one and three times per week.
 
 Breathe deeply and utilize gentle stretching. 
 
-Go for walks sometimes. 
+Go for walks sometimes.
+
+Eat healthy. 
+
+Attempt to be as healthy as possible. 
 
 Recommended books:
   The Art of Peace by Morihei Ueshiba
